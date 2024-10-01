@@ -1,2 +1,2 @@
 hello my name is Van Anh
-![](/insert path here)
+![](/images/425433216_1062960474937750_575681274037760579_n.jpg)
